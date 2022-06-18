@@ -25,14 +25,14 @@ October 2019 - Now
  Microsoft Office (MS Words, PowerPoint, Excel)  
 
 # CURRICULUM ACTIVITIES  
-College Representative Committee  
-- Sports Exco  
-MyAgrosis Club  
+College Representative Committee
+- Sports Exco
+-MyAgrosis Club  
 - President  
 Bafin Club  
 - Academic Exco  
 
-# REFERENCE  
+# REFERENCES  
 Najah Binti Mokhtar  
 Lecture  
 012-5197804  
